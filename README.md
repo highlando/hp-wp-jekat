@@ -19,7 +19,7 @@ Gesch&auml;ft. Wir bieten Ihnen
  * Zusammenarbeit mit lokalen Handwerksbetrieben und dem Netzbetreiber
  * Unterst&uuml;tzung bei Beantragung und Abwicklung der F&ouml;rderung (bis zu 70%) &uuml;ber die [KfW](https://www.kfw.de/inlandsfoerderung/Privatpersonen/Bestehende-Immobilie/F%C3%B6rderprodukte/Heizungsf%C3%B6rderung-f%C3%BCr-Privatpersonen-Wohngeb%C3%A4ude-(458))
 
-Vereinbaren Sie einen Termin und wir besprechen zeitnah und unverbindlich
+**Vereinbaren Sie einen Termin** und wir besprechen zeitnah und unverbindlich
 
  1. Welche W&auml;rmepumpe passt zu meinem Haus?
  2. Kann die bestehende Heizungsinstallation genutzt werden?
